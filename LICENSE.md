@@ -1,4 +1,4 @@
-# 
+# updated Bitdefender 全方位安全 PC版 插件 是最佳 Bitdefender 全方位安全 PC版 插件，集成 安全浏览 和 家长控制。安全、可靠、优化，性能最大化。
 
 
 
